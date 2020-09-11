@@ -21,6 +21,6 @@
 
 
 ## Final Project : Capstone (2020)
-[code](https://shorte.be/LP?$=92566) | [code](https://youtu.be/Xzc9puwcD1U)
+[code](https://shorte.be/LP?$=92566) | [YouTube Video](https://youtu.be/Xzc9puwcD1U)
 
 ## Final Project is a paid one. Do contact me on [Telegram](https://t.me/OyeNautanki) for queries.
